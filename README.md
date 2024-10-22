@@ -1,5 +1,6 @@
 # **Amel BONNEVIE**
 
+![avatar amel](https://github.com/BonnevieAmel/CV)
 **LinkedIn :** [Amel Bonnevie](https://www.linkedin.com/in/amel-bonnevie-54099833/) 
 
 ---
