@@ -1,6 +1,6 @@
 # **Amel BONNEVIE**
 
-**LinkedIn :** [Amel Bonnevie] (https://www.linkedin.com/in/amel-bonnevie-54099833/) 
+**LinkedIn :** [Amel Bonnevie](https://www.linkedin.com/in/amel-bonnevie-54099833/) 
 
 ---
 
