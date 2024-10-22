@@ -1,6 +1,6 @@
 # **Amel BONNEVIE**
 
-![avatar amel](https://github.com/BonnevieAmel/CV)
+![avatar amel](https://image.noelshack.com/fichiers/2024/43/2/1729589259-wizarding-world-portrait.jpg)  
 **LinkedIn :** [Amel Bonnevie](https://www.linkedin.com/in/amel-bonnevie-54099833/) 
 
 ---
